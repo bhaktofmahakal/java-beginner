@@ -24,6 +24,8 @@ https://pastecode.io/s/7qpgaapo
 https://pastecode.io/s/b20nezxr
 PASSWORD - 12345678901
 https://pastecode.io/s/4qcci3je
+https://pastecode.dev/s/dklns7q4
+password of personsal portfolio is 1234567890
 https://pastecode.io/s/u8t40wo2
 https://pastecode.io/s/z3vhndvz
 https://pastecode.io/s/bat7a5nw
